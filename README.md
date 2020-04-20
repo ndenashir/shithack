@@ -1,0 +1,2 @@
+# shithack
+Masih bingung hehe
